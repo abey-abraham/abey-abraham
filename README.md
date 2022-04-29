@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 📫 How to reach me: Link to [@abey](@Abey) or Link to [LinkedIn](https://www.linkedin.com/in/abeyabraham/)
+- 📫 How to reach me: [@abey](@Abey) or [LinkedIn](https://www.linkedin.com/in/abeyabraham/)
 
 ✌️
 
