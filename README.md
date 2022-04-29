@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 📫 How to reach me: [@Abey](https://twitter.com/abey) or [LinkedIn](https://www.linkedin.com/in/abeyabraham/)
+- 📫 How to reach me: [@Abey](https://twitter.com/abey) (Currently locked out 😞) or [LinkedIn](https://www.linkedin.com/in/abeyabraham/)
 
 ✌️
 
