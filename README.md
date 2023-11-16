@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-- 📫 How to reach me: [@Abey](https://twitter.com/abey) (Currently locked out 😞) or [LinkedIn](https://www.linkedin.com/in/abeyabraham/)
+- 📫 How to reach me: [@Abey](https://twitter.com/abey) (Not active) or [LinkedIn](https://www.linkedin.com/in/abeyabraham/) (way more active)
 
 BTW, since you're here, did you know you can access Github Advanced Search at the following link? https://github.com/search/advanced 😄
 
